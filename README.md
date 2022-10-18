@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Just-mercyy
-- 👀 I’m interested in 
+- 👀 I’m interested in Tech space
 - 🌱 I’m currently learning Cybersecurity
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: mercymomoh160@gmail.com
